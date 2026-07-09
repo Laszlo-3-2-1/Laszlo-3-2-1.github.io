@@ -1,5 +1,5 @@
 # Laszlo-3-2-1.github.io
-Support e-mail: gepgyartashf@gmail.com
+Support e-mail: gepgyartashf at gmail.com
 Support page for:
 
 Solitaire Card HD
